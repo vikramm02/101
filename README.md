@@ -1,5 +1,2 @@
 # 101
-Sparring
-tmt loss
-hahahah lolol 
-asdusnadln
+this is the final sparring
